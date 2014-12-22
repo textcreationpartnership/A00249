@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A CONSOLATORY LETTER TO ALL THE AFFLICTED CATHOLIKES in England.Philip. 4.Sic ſtate in domino Chariſ
+
 #####Body#####
 
 1. TO HIS MOST DEARE COVNTREYMEN ALL THE AFFLICTED CAtholickes in England H.B. wiſheth all comfort and ſtrength and ꝑſeueraunce in Chriſt Ieſus.
