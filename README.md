@@ -35,8 +35,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A consolatory letter to all the afflicted Catholikes in EnglandH. B., fl. 1588.1588Approx. 130 KB of
+A CONSOLATORY LETTER TO ALL THE AFFLICTED CATHOLIKES in England.Philip. 4.Sic ſtate in domino Chariſ
 #####Body#####
+
+1. TO HIS MOST DEARE COVNTREYMEN ALL THE AFFLICTED CAtholickes in England H.B. wiſheth all comfort and ſtrength and ꝑſeueraunce in Chriſt Ieſus.
+
+    _ The Second Parte what Recuſants ſhall loſe.
 
 **Types of content**
 
